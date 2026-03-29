@@ -107,7 +107,7 @@ through successfully completing a sequence of steps, a basic description of what
 meritocracy and reputation co-exist side by side. So there is no process universally defined and agreed on by every person. It is this 
 fact that some have capitalized on to destandardize achievements, for the better or worse. 
 
-French and German politics tend towards rigidity, and this rigidity is passed down onto most members. Spanish politics passed onto Latin 
+Italian and German politics tend towards rigidity, and this rigidity is passed down onto most members. Spanish politics passed onto Latin 
 and Central American countries tend to be hectic and emotive, lacking in the hallmarks of high civilization, and these traits are compounded 
 by post-Conquistador approaches to integrate indigenous peoples. These are somewhat stereotypes, but there is a need to mention them for this 
 next point to be made. The United States, in its openness to diversify, is swamped by ideologies incongruent with each other. Consider the 
