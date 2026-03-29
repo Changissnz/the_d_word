@@ -31,7 +31,7 @@ with that, innately. But those sentiments do not bode well for maintaining alleg
 two broad categories: military support and commercial partnership. It seems these so-called democratic movements are a lot better at 
 reacting than maintaining. And for one to react requires one to first be subject. This principle speaks a lot on the quality of the 
 constituents behind democratic movements, individuals that feel or may actually be enslaved, in certain respects. The structure of 
-societies that call themselves democratic is republican. In the United States, the two main political parties are Democratic and 
+civilization that calls itself democratic is republican. In the United States, the two main political parties are Democratic and 
 Republican. The diction of this political labeling presupposes the indivisibility of certain political ideals, yet the political 
 machine of competition and propaganda takes this presupposition for granted, buries it away and neglects it, then goes on to parade 
 and promote arbitrary people toward high society, medium society, or low society. Through these changes, there are inconsistencies with 
