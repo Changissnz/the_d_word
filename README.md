@@ -78,7 +78,7 @@ turned cop, under the leadership of a so-called populist that inherited enough c
 from failing democracies to more autocratized forms, these characters would have lesser chance of posing issues for upstanding citizens. 
 There may be laments about the declining state of democracy. And these laments may be justified by fate, especially when proposed 
 resolutions center around eliminating causal factors, and this elimination process would surely push the nation towards more apparent 
-expression of autocratic traits. Protectionist arrangements are a staple in orderly societies. There will always be some, regardless \
+expression of autocratic traits. Protectionist arrangements are a staple in orderly societies. There will always be some, regardless 
 of their political ideology or lack of it, that will want to be the leader, the showman. 
 
 Democracy and the welfare state apparatus. Is being constructive one of the characteristic traits of being free? Many people would 
