@@ -124,5 +124,5 @@ Political lobbying is a major American industry. Some people want to turn a blin
 is there. American democratic ideals are presented as predominantly secular in nature, yet allow people with ultra-religious views to hold 
 important positions of authority. American democratic ideals are purported to transcend the pettiness of prejudice and greed of material, yet 
 many political initiatives, regardless of political ideologies behind them, are unrestrained for material and motivated by a lot of ill will. 
-So expression, via communication and rhetoric comes somewhere before, in the middle, or after. But actions count. And not all actions have to 
+So expression, via communication and rhetoric comes somewhere before, in the middle, or after. But actions count. And not every action has to 
 be accounted for by every single person. "Democracy", as a flowery ideal and multi-faceted practice, just does not work out for some people. 
