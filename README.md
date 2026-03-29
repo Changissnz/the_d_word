@@ -12,7 +12,7 @@ What has today's American two-party system offered to its citizens? How was the 
 develop America, since the past decade, into its current position on the world stage? 
 
 Cynicism on American "democracy" can be justified through many ways, such as anecdotes, historical precedent, and cultural 
-mismatches. From a dual perspective, this word "democracy" in the American context should not to be taken for granted. Well, anything 
+mismatches. From a dual perspective, this word "democracy" in the American context should not be taken for granted. Well, anything 
 can be taken for granted, especially if one were in a position to indulge in luxuries and cause problems that would not be possible 
 for them to do if they were in a more impoverished condition. Such positions are, in many ways, prime to drop hammers and cause 
 craters, metaphorically speaking. On the one hand, militarism should not be equated with the hallmarks of great democracies. Militarism 
