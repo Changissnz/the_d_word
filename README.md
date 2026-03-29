@@ -73,13 +73,13 @@ Some people organize for "rights" and "freedoms". The organizer has an undue obl
 organizer go to if the government does not back them? Financiers and other shady characters. And the more official opposition is 
 used, the more democratic movements would have to turn to the "dark" sides, the sides without official rules and official government 
 backing. Without need to mention morality, these trends could technically lead to a schism. Some people choose autocracy because of 
-the weakness of democratic processes. To be the object of slander by a gambler, a high-school dropout turned cop, a so-called populist 
-that has inherited enough capital to pursue some things in life? During transitions from failing democracies to more autocratized 
-forms, these characters would have lesser chance of posing issues for upstanding citizens. There may be laments about the declining 
-state of democracy. And these laments may be justified by fate, especially when proposed resolutions center around eliminating 
-causal factors, and this elimination process would surely push the nation towards more apparent expression of autocratic traits. 
-Protectionist arrangements are a staple in orderly societies. There will always be some, regardless of their political ideology or 
-lack of it, that will want to be the leader, the showman. 
+the weakness of democratic processes. To be the object of slander by a gambler, compliant to the justice of a high-school dropout 
+turned cop, under the leadership of a so-called populist that inherited enough capital to pursue some things in life? During transitions 
+from failing democracies to more autocratized forms, these characters would have lesser chance of posing issues for upstanding citizens. 
+There may be laments about the declining state of democracy. And these laments may be justified by fate, especially when proposed 
+resolutions center around eliminating causal factors, and this elimination process would surely push the nation towards more apparent 
+expression of autocratic traits. Protectionist arrangements are a staple in orderly societies. There will always be some, regardless \
+of their political ideology or lack of it, that will want to be the leader, the showman. 
 
 Democracy and the welfare state apparatus. Is being constructive one of the characteristic traits of being free? Many people would 
 say "no", especially when the construction is forced labor. There are traits in democratic ideals that lead to lethargy and aimlessness. 
