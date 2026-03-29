@@ -34,8 +34,8 @@ constituents behind democratic movements, individuals that feel or may actually 
 civilization that calls itself democratic is republican. In the United States, the two main political parties are Democratic and 
 Republican. The diction of this political labeling presupposes the indivisibility of certain political ideals, yet the political 
 machine of competition and propaganda takes this presupposition for granted, buries it away and neglects it, then goes on to parade 
-and promote arbitrary people toward high society, medium society, or low society. Through these changes, there are inconsistencies with 
-idealized expectations. So there will always be resistance towards some people and outcomes. 
+and promote arbitrary people toward high society, medium society, or low society. And that is if social mobility is possible. Through 
+these changes, there are inconsistencies with idealized expectations. So there will always be resistance towards some people and outcomes. 
 
 With a nation such as the United States, there is a lot of form and officious motion in its representation, as well as in the underlying 
 constituency. Most demographic identities in the United States have significant political lobbying behind them. Ironically, demographic 
