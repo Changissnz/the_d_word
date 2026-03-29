@@ -47,7 +47,7 @@ questionable as these labels are.
 
 One of the downsides of republicanism is its tendency to institutionalize hereditary association. This tendency shows itself in many 
 of today's far-right coalitions in the West. It is almost certain that when commercial organizations crumble and meritocratic achievements 
-no longer upheld, these coalitions gain an insurmountable degree of legitimacy. Where some opponents of far-right coalitions see them 
+no longer upheld, these coalitions gain an insurmountable degree of legitimacy. While some opponents of far-right coalitions see them 
 as propagating fascism through disenfranchising those not of their kind, other people see them as just another political group of 
 voices that can be no better or worse than their liberal opponents, especially when the liberal factions did revolve a lot around 
 ethnocultural identities, yet do not publicly express themselves in that way. Common filler words used instead are "business" and 
