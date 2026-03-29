@@ -50,7 +50,7 @@ of today's far-right coalitions in the West. It is almost certain that when comm
 no longer upheld, these coalitions gain an insurmountable degree of legitimacy. Where some opponents of far-right coalitions see them 
 as propagating fascism through disenfranchising those not of their kind, other people see them as just another political group of 
 voices that can be no better or worse than their liberal opponents, especially when the liberal factions did revolve a lot around 
-ethnocultural identities, yet do not express themselves in that way publicly. Common filler words used instead are "business" and 
+ethnocultural identities, yet do not publicly express themselves in that way. Common filler words used instead are "business" and 
 "democracy", avoiding articulating the language used by many of the far-right. And through this avoidance, some people have come to 
 see liberal political factions as sinister in motive and dishonest in benevolence. 
 
