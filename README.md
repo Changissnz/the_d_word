@@ -8,7 +8,7 @@ I feel it in my right to offer my sincere perspective on the state of American d
 
 The D Word. Does the D stand for drugs, danger, damnation or something much more nobler, according to certain perspectives? 
 Democracy. What is it about American-styled democracy that makes it rightful to be spread to other parts of the world? 
-What have today's American two-party system offered to its citizens? How was the driving force behind Trumpism enabled to 
+What has today's American two-party system offered to its citizens? How was the driving force behind Trumpism enabled to 
 develop America, since the past decade, into its current position on the world stage? 
 
 Cynicism on American "democracy" can be justified through many ways, such as anecdotes, historical precedent, and cultural 
