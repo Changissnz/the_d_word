@@ -16,7 +16,7 @@ mismatches. From a dual perspective, this word "democracy" in the American conte
 can be taken for granted, especially if one were in a position to indulge in luxuries and cause problems that would not be possible 
 for them to do if they were in a more impoverished condition. Such positions are, in many ways, prime to drop hammers and cause 
 craters, metaphorically speaking. On the one hand, militarism should not be equated with the hallmarks of great democracies. Militarism 
-is militarism, and historical shows that nation-states that excel in this do not have to be wealthy enough to afford it. The military 
+is militarism, and history shows that nation-states that excel in this do not have to be wealthy enough to afford it. The military 
 campaigns could simply cave inward against citizens and even the politicians. Yet, militarism has been the American signature in its 
 exporting of "democracy" to other countries. Equating democracy with militarism does not make for clean answers. The world is not simple, 
 true, but as anyone should know, militarism does mean death and destruction intended for some people. So regardless of a person's belief 
