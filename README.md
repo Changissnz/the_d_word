@@ -65,7 +65,7 @@ works in the United States. Consider the trope of the disenfranchised black man.
 against. But then someone from the Muslim Brotherhood or Colin Kapernick make a show of support for the demographic of black males. 
 Then social affairs take wild turns, in part because of this dissent. Ok, then. But then no one really knows what really happens after 
 that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not black, but that is another matter. The point is the 
-idol representation that democracies encourage are not representative of the populace, and the grandiosity does not sustain effective 
+idol representation that "democracies" encourage are not representative of the populace, and the grandiosity does not sustain effective 
 reform. Idolatry has strong theatric undertones, and the fanfare almost always taints the sincerity of such support. If every 
 able-bodied person were paid enough currency to save up for something outside of their present means, a lot less people would pay 
 attention to some representatives, in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
