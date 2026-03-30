@@ -69,7 +69,7 @@ idol representation that "democracies" encourage are not representative of the p
 reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If every 
 able-bodied person were paid enough currency to save up for something outside of their present means, a lot less people would pay 
 attention to representatives in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
-has not allowed this condition to reach most people. Instead of always laboring and minding own businesses, the populace has been granted 
+has not allowed this condition to reach most people. Instead of always laboring and minding own business, the populace has been granted 
 luxuries from American "democracy" to watch politicians such as Marco Rubio on television, tune in to political crackpots, and fixate on idols 
 of course, much to the chagrin of independents. 
 
