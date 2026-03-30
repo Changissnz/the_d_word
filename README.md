@@ -68,7 +68,7 @@ that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not blac
 idol representation that "democracies" encourage are not representative of the populace, and the grandiosity does not sustain effective 
 reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If every 
 able-bodied person were paid enough currency to save up for something outside of their present means, a lot less people would pay 
-attention to some representatives in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
+attention to representatives in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
 has not allowed this condition to reach most people. Instead of always laboring and minding own businesses, the populace has been granted 
 luxuries from American "democracy" to watch politicians such as Marco Rubio on television, tune in to political crackpots, and idols 
 of course, much to the chagrin of independents. 
