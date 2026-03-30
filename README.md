@@ -98,7 +98,7 @@ Democracy and the welfare state apparatus. Is being constructive one of the char
 say "no", especially when the construction is forced labor. There are traits in democratic ideals that lead to lethargy and aimlessness. 
 Sometimes, being idle gets equated with being free. In theory, a high-functioning free (democratic) state would smoothly facilitate 
 individual needs when those times arise. And these individual needs are much greater than those in autocratic states, where there are 
-needs to be mindful to the rules, of the hierarchy, and not act out of the lines set by socioeconomic dictates. That is just the theory, 
+needs to be mindful of the rules, of the hierarchy, and not act out of the lines set by socioeconomic dictates. That is just the theory, 
 though. Just a political theory, a class of ideas that are not on the same functioning level of reality as hard scientific theory. 
 
 Some American leaders argue that there needs to be institutions and that, maybe, there needs to be more institutions for democracy to 
