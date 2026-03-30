@@ -69,11 +69,13 @@ idol representation that "democracies" encourage are not representative of the p
 reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If Colin Kapernick 
 and the Muslim Brotherhood had to ask permission from the American populace before their political activism, would the American populace 
 have approved? And if they would not have approved, would that activism nevertheless tilt their proclivities so that they would eventually 
-approve? These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were paid enough currency 
-to save up for something outside of their present means, a lot less people would pay attention to representatives in sports, politics, 
-et cetera. However, it seems that the social design of American "democracy" has not allowed this condition to reach most people. Instead 
-of always laboring and minding own business, the populace has been granted luxuries from American "democracy" to watch politicians such 
-as Marco Rubio on television, tune in to political crackpots, and fixate on idols of course, much to the chagrin of independents. 
+approve? Would approval from the American populace for the activism of Kapernick and the Muslim Brotherhood have allowed long-lasting reforms 
+to discrimination against blacks. These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were 
+paid enough currency to save up for something outside of their present means, a lot less people would pay attention to representatives 
+in sports, politics, et cetera. However, it seems that the social design of American "democracy" has not allowed this condition to reach 
+most people. Instead of always laboring and minding own business, the populace has been granted luxuries from American "democracy" to 
+watch politicians such as Marco Rubio on television, tune in to political crackpots, and fixate on idols of course, much to the chagrin 
+of independents. 
 
 Could it be that the United States is not really experiencing a democratic decline, so much as it is having to deal with commercial 
 fallouts and ethnic accomodations? If so, that would really be another broad problem with attempting to continue the United States 
