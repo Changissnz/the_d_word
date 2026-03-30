@@ -116,8 +116,8 @@ for transparency.
 Dissent thrives on recycling grievances and injustices. When dissent becomes a defining trait of a political faction, there is not much 
 fairness and merit to uphold. Those are secondary objectives, out of neglect or due to the demands of channeling resources through the 
 hierarchy. A person that is not familiarized with the world of human beings they live in might still think that everything can be solved 
-through successfully completing a sequence of steps, a basic description of what meritocracy is. However, in the world of human beings, 
-meritocracy and reputation co-exist side by side. So there is no process universally defined and agreed on by every person. It is this 
+through successfully completing a sequence of steps, a basic description of how meritocracy is demonstrated. However, in the world of human 
+beings, meritocracy and reputation co-exist side by side. So there is no process universally defined and agreed on by every person. It is this 
 fact that some have capitalized on to destandardize achievements, for the better or worse. 
 
 Italian and German politics tend towards rigidity, and this rigidity is passed down onto most members. Spanish politics passed onto Latin 
