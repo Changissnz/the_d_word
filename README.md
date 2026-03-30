@@ -62,7 +62,7 @@ non-transparent veneers.
 
 Idolatry arguably plagues the United States. Some will say that being against idolization is undemocratic. And that is how opinion 
 works in the United States. Consider the trope of the disenfranchised black man. True, black people have been and are discriminated 
-against. But then someone from the Muslim Brotherhood or Colin Kapernick make a show of support for the demographic of black males. 
+against. But then someone from the Muslim Brotherhood or Colin Kapernick makes a show of support for the demographic of black males. 
 Then social affairs take wild turns, in part because of this dissent. Ok, then. But then no one really knows what happens after 
 that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not black, but that is another matter. The point is the 
 idol representation that "democracies" encourage are not representative of the populace, and the grandiosity does not sustain effective 
