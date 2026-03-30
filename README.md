@@ -108,7 +108,7 @@ though. Just a political theory, a class of ideas that are not on the same funct
 Some American leaders argue that there needs to be institutions and that, maybe, there needs to be more institutions for democracy to 
 continue on. On the matter of institutions, the social structuring that comes out of institutionalization is surely imperfect. Human 
 decisions get "engineered" through institutions. These decisions would not have been preferred without these institutions. Fascist and 
-communist nations, both being forms of autocracy besides from the monarchical and theocratic forms, were/are buttressed by institutions. 
+communist nations, both being forms of autocracy beside from the monarchical and theocratic forms, were/are buttressed by institutions. 
 Autocracies also frequently organize power via institutions, albeit those institutions are usually viewed as corrupted by the whims 
 of high-ranking political leaders, therefore detrimental to freedoms. There are lofty claims that come about from preferring one 
 political faction over another, and out of the sheer hypocrisy from competition and compensation, the practices may become indiscernible 
