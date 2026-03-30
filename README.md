@@ -66,12 +66,14 @@ against. But then someone from the Muslim Brotherhood or Colin Kapernick make a 
 Then social affairs take wild turns, in part because of this dissent. Ok, then. But then no one really knows what happens after 
 that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not black, but that is another matter. The point is the 
 idol representation that "democracies" encourage are not representative of the populace, and the grandiosity does not sustain effective 
-reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If every 
-able-bodied person were paid enough currency to save up for something outside of their present means, a lot less people would pay 
-attention to representatives in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
-has not allowed this condition to reach most people. Instead of always laboring and minding own business, the populace has been granted 
-luxuries from American "democracy" to watch politicians such as Marco Rubio on television, tune in to political crackpots, and fixate on idols 
-of course, much to the chagrin of independents. 
+reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If Colin Kapernick 
+and the Muslim Brotherhood had to ask permission from the American populace before their political activism, would the American populace 
+have approved? And if they would not approve, would that activism nevertheless tilt their proclivities so that they would eventually 
+approve? These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were paid enough currency 
+to save up for something outside of their present means, a lot less people would pay attention to representatives in sports, politics, 
+et cetera. However, it seems that the social design of American "democracy" has not allowed this condition to reach most people. Instead 
+of always laboring and minding own business, the populace has been granted luxuries from American "democracy" to watch politicians such 
+as Marco Rubio on television, tune in to political crackpots, and fixate on idols of course, much to the chagrin of independents. 
 
 Could it be that the United States is not really experiencing a democratic decline, so much as it is having to deal with commercial 
 fallouts and ethnic accomodations? If so, that would really be another broad problem with attempting to continue the United States 
