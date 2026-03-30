@@ -60,6 +60,19 @@ after someone else, treating people how other people treat people, compromising 
 These changes can allow for novel greatness. But they do make empirical discussions on societal affairs difficult to voice without 
 non-transparent veneers. 
 
+Idolatry arguably plagues the United States. Some will say that being against idolization is undemocratic. And that is how opinion 
+works in the United States. Consider the trope of the disenfranchised black man. True, black people have been and are discriminated 
+against. But then someone from the Muslim Brotherhood or Colin Kapernick make a show of support for the demographic of black males. 
+Then social affairs take wild turns, in part because of this dissent. Ok, then. But then no one really knows what really happens after 
+that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not black, but that is another matter. The point is the 
+idol representation that democracies encourage are not representative of the populace, and the grandiosity does not sustain effective 
+reform. Idolatry has strong theatric undertones, and the fanfare almost always taints the sincerity of such support. If every 
+able-bodied person were paid enough currency to save up for something outside of their present means, a lot less people would pay 
+attention to some representatives, in sports, politics, et cetera. However, it seems that the social design of American "democracy" 
+has not allowed this condition to reach most people. Instead of always laboring and minding own businesses, American "democracy" has 
+also granted the populace luxuries to watch politicians such as Marco Rubio on television, tune in to political crackpots, and idols 
+of course, much to the chagrin of independents. 
+
 Could it be that the United States is not really experiencing a democratic decline, so much as it is having to deal with commercial 
 fallouts and ethnic accomodations? If so, that would really be another broad problem with attempting to continue the United States 
 in the image of the Ancient Roman empire. Things would not really add up, based on historical precedent. There would be all these 
