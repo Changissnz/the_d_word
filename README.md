@@ -70,7 +70,7 @@ reform. Idolatry has strong theatrical undertones, and the fanfare almost always
 and the Muslim Brotherhood had to ask permission from the American populace before their political activism, would the American populace 
 have approved? And if they would not have approved, would that activism nevertheless tilt their proclivities so that they would eventually 
 approve? Would approval from the American populace for the activism of Kapernick and the Muslim Brotherhood have allowed long-lasting reforms 
-to discrimination against blacks. These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were 
+to discrimination against blacks? These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were 
 paid enough currency to save up for something outside of their present means, a lot less people would pay attention to representatives 
 in sports, politics, et cetera. However, it seems that the social design of American "democracy" has not allowed this condition to reach 
 most people. Instead of always laboring and minding own business, the populace has been granted luxuries from American "democracy" to 
