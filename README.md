@@ -68,7 +68,7 @@ that. The Muslim Brotherhood and Colin Kapernick are technically Moors, not blac
 idol representation that "democracies" encourage are not representative of the populace, and the grandiosity does not sustain effective 
 reform. Idolatry has strong theatrical undertones, and the fanfare almost always taints the sincerity of such support. If Colin Kapernick 
 and the Muslim Brotherhood had to ask permission from the American populace before their political activism, would the American populace 
-have approved? And if they would not approve, would that activism nevertheless tilt their proclivities so that they would eventually 
+have approved? And if they would not have approved, would that activism nevertheless tilt their proclivities so that they would eventually 
 approve? These are valid questions on the intertwining of idolatry and reform. If every able-bodied person were paid enough currency 
 to save up for something outside of their present means, a lot less people would pay attention to representatives in sports, politics, 
 et cetera. However, it seems that the social design of American "democracy" has not allowed this condition to reach most people. Instead 
